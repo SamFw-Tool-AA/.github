@@ -3,8 +3,8 @@
 SamFw Tool is a powerful software tool that can bypass FRP (Factory Reset Protection) on Samsung, Xiaomi, LG, and other Android devices. It also has some other features such as bloatware removal, firmware flashing, and device management. 
 
 
-## [🎉🚀👉SamFw Tool](https://alipc.pro/dl) 
+## [🎉🚀👉SamFw Tool](https://fullsetup.click/dl/) 
 
-## [🎉🚀👉SamFw FRP Tool](https://alipc.pro/dl) 
+## [🎉🚀👉SamFw FRP Tool](https://fullsetup.click/dl/) 
 
 
